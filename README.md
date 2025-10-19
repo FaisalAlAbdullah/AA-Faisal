@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FaisalAlAbdullah
-- 👀 I’m interested in Football
-- 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on everything
+- 👀 I’m interested in you prolly??
+- 🌱 I’m currently learning AI, ML
+- 💞️ I’m looking to collaborate on interesting projects
 - 📫 How to reach me https://www.facebook.com/abdullah.faisal.srabon
 - 😄 Pronouns: (Foy Sal)
 - ⚡ Fun fact: Bad coder
